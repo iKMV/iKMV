@@ -1,5 +1,4 @@
-# 💫 About Me:
-I'm currently a BS Information Technology student. 
+
 
 
 ## 🌐 Socials:
